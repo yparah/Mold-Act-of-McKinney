@@ -8,8 +8,11 @@ Mold remediation helps to remove mold of all types - visible and invisible (spor
 **Payment methods:** Cash, Visa, Master Card, Discover, American Express, Diners, Debit Card.
 
 **Name:** Mold Act of McKinney
+
 **Address:** 2150 S Central Expy, Suite 200, McKinney, TX 75070
+
 **Phone:** (469) 678-7229
+
 **Email:** marielle@moldact.com
 
 **URL:** https://www.moldact.com/
